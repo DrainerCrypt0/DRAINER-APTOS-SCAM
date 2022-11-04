@@ -1,5 +1,5 @@
 # DRAINER-APTOS-SCAM
-
+NEW DRAINER
 
 📩 DM us here: https://t.me/CresusETH 
 💧 NFT SCAM /APTOS Stealer / NEW!!
